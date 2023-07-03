@@ -14,6 +14,3 @@ Check out, rakeshkelmmedia/visual (multiple web sites)
 Check out, rakeshkelmmedia/visual (multiple accounts)
 
 Build and Operationalize a Planet. Expand and Update Independent Interest.
-
-
-Build and Operationalize a Planet. Expand and Update Independent Interest.

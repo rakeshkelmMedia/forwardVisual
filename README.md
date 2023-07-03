@@ -1,6 +1,6 @@
 Forward Visual - Rakesh Kukatla, Independent interest and Militia, forward (Suc-king)
 
-https://forward.planet.militia
+https://forwardvisual.planet.militia
 
 Visual media from forward
 

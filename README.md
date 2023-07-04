@@ -2,7 +2,7 @@ Forward visuals - from, Forward
 
 Rakesh Kukatla, Independent interest and Militia (Suc-king)
 
-https://forwardvisuals.planet.militia
+https://forwardvisuals.media.militia
 
 Check out, Forward visuals
 
